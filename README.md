@@ -33,4 +33,4 @@ I'm an AI/ML student transitioning into the art field, blending creativity with 
 While I come from a technical background, I draw occasionally and am exploring ways to merge technology with art. Looking forward to creating unique AI-driven design projects!
 
 ## 🌟 Let's Connect!
-🔗 [LinkedIn](https://www.linkedin.com/in/anjana-alavandar- 51b653268) • 📧 [Email](anjanaalavandar@gmail.com) • 🌎 [Portfolio (Coming Soon!)](#)
+🔗 [LinkedIn](https://www.linkedin.com/in/anjana-alavandar- 51b653268) • 📧 [Email](anjanaalavandar@gmail.com) 
